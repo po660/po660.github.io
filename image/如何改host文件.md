@@ -17,4 +17,4 @@
 ### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://jy.scynull.com/p9/index.html?t=001gz_298" target="_blank">点击进入</a>
 ### 18+51品茶<a rel="nofollow noopener" href="https://90d1f.f9fee9e5f.com/?code=aZJ6Q&c=16921" target="_blank">点击进入</a>
 
-資源收集互聯網.未滿十八禁止下載
+資源收集互聯網.未滿十八禁止下載.
