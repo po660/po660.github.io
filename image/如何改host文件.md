@@ -9,7 +9,7 @@
 ### 18+海角下載<a rel="nofollow noopener" href="https://baa97f.oknpap.com/aff-bsKN8" target="_blank">点击进入</a>
 ### 18+杏吧下載<a rel="nofollow noopener" href="https://3lasdasdad.me/ck/10981/oebg31xb" target="_blank">点击进入</a>
 # 漫畫.次元.糖心
-### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://7oisdfjksdfjsd.me/ck/10983/oebg21mh" target="_blank">点击进入</a>
+### 18+哔咔漫画下载<a rel="nofollow noopener" href="https://apk2.led-rymx.com/bika-oebg21bk?_v=169905" target="_blank">点击进入</a>
 ### 18+51动漫下载<a rel="nofollow noopener" href="https://e4988bf8.puemrdxqn.com/?code=ahbFk&c=16921" target="_blank">点击进入</a>
 ### 18+爱萝莉下载<a rel="nofollow noopener" href="https://apwbf4tmu3yg.top/?channel_code=MIM33BBG" target="_blank">点击进入</a>
 ### 18+糖心下载<a rel="nofollow noopener" href="https://apk4.yufengedu.com/tangxin-oebg31tx?_v=169903" target="_blank">点击进入</a>
