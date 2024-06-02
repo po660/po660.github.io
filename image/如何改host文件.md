@@ -16,7 +16,7 @@
 ### 18+51蘿莉下载<a rel="nofollow noopener" href="https://0198.umgfgq.com/chan/GS1525/SWKC" target="_blank">点击进入</a>
 ### 18+51漫画下载<a rel="nofollow noopener" href="https://7oisdfjksdfjsd.me/ck/10983/oebg21mh" target="_blank">点击进入</a>
 # 同城約愛
-### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://6500affd.xh1otto.com/?code=aZJ6Q&c=16921" target="_blank">点击进入</a>
+### (少妇.学妹)直接約<a rel="nofollow noopener" href="https://jy.yunjun1.cn/index.html?p=001gz_298" target="_blank">点击进入</a>
 
 
 
