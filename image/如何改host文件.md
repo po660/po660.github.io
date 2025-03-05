@@ -1,11 +1,11 @@
 # 蜜臀.抖音.快手
-### 18+抖音下載<a rel="nofollow noopener" href="https://6bc2.sffvvuci.cc/chan/GS1054/y85Z" target="_blank">点击进入</a>
-### 18+91短视频下載<a rel="nofollow noopener" href="https://3807.yqaqbwgs.cc/chan-4780/aff-ktWnZ" target="_blank">点击进入</a>
-### 18+soul下載<a rel="nofollow noopener" href="https://daab.uqnjusxa.cc/aff-qYfU" target="_blank">点击进入</a>
-### 18+快手下載<a rel="nofollow noopener" href="https://be643.ksav.fun/chan/ksh0885/d35q" target="_blank">点击进入</a>
-### 18+每日大赛下載<a rel="nofollow noopener" href="https://2ac23.yvvephsk.com/aff-495h" target="_blank">点击进入</a>
-### 18+水果派下載<a rel="nofollow noopener" href="https://cafe.cmvscilm.cc/chan/GS2063/kwQ5" target="_blank">点击进入</a>
-### 18+草榴社区下載<a rel="nofollow noopener" href="https://8ea.xmjuebyl.cc/aff-a32AJ" target="_blank">点击进入</a>
+### 18+抖音下載<a rel="nofollow noopener" href="https://m05akwslx.rzvi3t1lo.top/?channel_code=MIM05BBG" target="_blank">点击进入</a>
+### 18+蜜臀下載<a rel="nofollow noopener" href="https://m18ftinig.n4hunpzp5.top/?channel_code=MIM18BBG" target="_blank">点击进入</a>
+### 18+抖射下載<a rel="nofollow noopener" href="https://m05akwslx.rzvi3t1lo.top/?channel_code=MIM05BBG" target="_blank">点击进入</a>
+### 18+快手下載<a rel="nofollow noopener" href="https://m04rklxuz.rv4tjdysg.top/?channel_code=MIM04BBG" target="_blank">点击进入</a>
+### 18+小太妹下載<a rel="nofollow noopener" href="https://m03tjgcjd.rry2pjwoz.top/?channel_code=MIM03BBG " target="_blank">点击进入</a>
+### 18+爱萝莉下載<a rel="nofollow noopener" href="https://m33ryoxyj.npzrabfly.top/?channel_code=MIM33BBG" target="_blank">点击进入</a>
+### 18+欲漫漫下載<a rel="nofollow noopener" href="https://m7tchjgc.mioju5pt3.top/?channel_code=MIM07BG" target="_blank">点击进入</a>
 ### 18+91大神社区下載<a rel="nofollow noopener" href="https://2527.fpminhji.cc/chan/GS2187/nyBw" target="_blank">点击进入</a>
 ### 18+91暗网下載<a rel="nofollow noopener" href="https://61994.qfshfkoy.org/aff-a6SG6" target="_blank">点击进入</a>
 ### 18+海角社区下載<a rel="nofollow noopener" href="https://cf78.umjigwhq.cc/aff-bsKN8" target="_blank">点击进入</a>
