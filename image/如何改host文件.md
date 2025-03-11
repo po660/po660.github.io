@@ -1,7 +1,7 @@
-# 大神.海角.暗网
+# 大神.抖音.暗网
 ### 18+91大神社区下載<a rel="nofollow noopener" href="https://819.unxykcw.cc/chan/GS2187/nyBw" target="_blank">点击进入</a>
 ### 18+91暗网下載<a rel="nofollow noopener" href="https://00c34.qfshfkoy.org/aff-a6SG6" target="_blank">点击进入</a>
-### 18+抖音下載<a rel="nofollow noopener" href="https://841.axkrdfn.xyz/chan/GS1054/y85Z" target="_blank">点击进入</a>
+### 18+抖音下載<a rel="nofollow noopener" href="https://a5e9.baovmrv.cc/chan/max2218/UZa3" target="_blank">点击进入</a>
 ### 18+91短视频下載<a rel="nofollow noopener" href="https://09cb.dfjbaoz.cc/chan-4780/aff-ktWnZ" target="_blank">点击进入</a>
 ### 18+50度灰下載<a rel="nofollow noopener" href="https://36a9.abuielw.xyz/chan/h56418/wukq4" target="_blank">点击进入</a>
 ### 18+快手下載<a rel="nofollow noopener" href="https://62e2.ksav.fun/chan/ksh0885/d35q" target="_blank">点击进入</a>
